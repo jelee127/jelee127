@@ -1,7 +1,6 @@
 - 👋 Hi, I’m Jae (@chsezbet)
 - 👀 I’m interested in playing bowling and dancing
 - 🌱 I’m currently learning data collecting and analyzing and development
-- 💞️ I’m looking to collaborate on ...
 - 📫 Please reach me through: chsezbet@gmail.com
                               www.linkedin.com/in/jaelee127
 
